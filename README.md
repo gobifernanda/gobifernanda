@@ -31,9 +31,9 @@ I am open to opportunities that value resilient, committed, and constantly evolv
 
 ## Curiosities about me
 
-* In my free time, I really enjoy playing video games, watching series, listening to music, and spending time with my pets;
+* In my free time, I really enjoy watching soccer, playing video games, watching series, listening to music, and spending time with my pets;
 * I worked in retail for 10 years, including 8 years at a children's store. I started as a cashier and was promoted to Junior Assistant Manager;
-* My passion for technology began when I was a child, when I started using Windows 98, XP (School), Vista, 7, 8 and 10 the operating system that has been with me ever since;
+* My passion for technology began when I was a child, when I started using Windows 98, the operating system that has been with me ever since;
 * I have been a certified Chemistry Technician since 2014. I’ve never worked in the field, but it’s something I truly enjoy;
 * I really like to help people and learn random things.
 
