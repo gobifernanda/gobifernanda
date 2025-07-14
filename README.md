@@ -15,7 +15,6 @@ I am currently transitioning careers and studying Information Systems at Faculda
 
 I am currently part of Class 12 of DIO's Campus Expert program, where I serve as an ambassador, encouraging and connecting the tech community.
 
-I am open to opportunities that value resilient, committed, and constantly evolving professionals.
 
 ## Detailed information
 
